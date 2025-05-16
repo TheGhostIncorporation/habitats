@@ -1,1 +1,1 @@
-This project is for educational purposes only. This is also about animals habitats and adaptations. 
+This project is for educational purposes only. used with the help of copilot (c)
